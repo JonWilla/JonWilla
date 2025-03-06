@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on many projects
 - 📫 How to reach me: you can reach me out jonnyw2024@gmail.com
 - 😄 Pronouns: I don't have. But I got respect for everyone.
-- ⚡ Fun fact: ...Love Venus & wish live there, It has same gravity with earth...
+- ⚡ Fun fact: ...Love Venus & wish live there, It has same gravity with earth and one day is 248 earth days..that is cool...
 
 <!---
 JonWilla/JonWilla is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
